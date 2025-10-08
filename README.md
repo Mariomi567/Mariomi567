@@ -2,7 +2,7 @@
 - 👀 I’m interested in porn
 - 🌱 I’m currently learning porn
 - 💞️ I’m looking to collaborate on xvideos.
-- 📫 How to reach me ww.pornhub.com
+- 📫 How to reach me www.pornhub.com
 
 <!---
 Mariomi567/Mariomi567 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
